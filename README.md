@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI/UX,frontend developer
 - 🌱 I’m currently learning frontend developer
 - 💞️ I’m looking to collaborate on UX case study respository
-- 📫 How to reach me email:jogasweety708@gmail.com
+- 📫 How to reach me email:prasannajogaa@gmail.com
 - 😄 Pronouns: prasanna
 - ⚡ Fun fact:  🎨 I’m a UI/UX designer who loves turning ideas into beautiful interfaces.  
 - 🎮 I enjoy gaming and secretly judge UI/UX in every game I play.  
